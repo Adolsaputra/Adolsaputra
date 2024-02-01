@@ -1,8 +1,8 @@
-- 👋 Hai, saya @Adolsaputra
+- 👋 Hai, saya ADOL SAPUTRA
 - 👀 Saya tertarik dengan meri
-- 🌱 Saat ini saya sedang belajar meri
-- 💞️ Saya ingin berkolaborasi dalam meri
-- 📫 Bagaimana cara menghubungi meri
+- 🌱 Saat ini saya sedang belajar nempel meri
+- 💞️ Saya ingin berkolaborasi dengan meri
+- 📫 Saya ter meri meri
 - 😄 Kata ganti: meri
 - ⚡ Fakta menarik: meri
 

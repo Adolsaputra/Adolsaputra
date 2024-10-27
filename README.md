@@ -1,7 +1,7 @@
-- 👋 Hai, saya ADOL SAPUTRA
-- 👀 Saya tertarik dengan meri
-- 🌱 Saat ini saya sedang belajar nempel meri
-- 💞️ Saya ingin berkolaborasi dengan meri
-- 📫 Saya ter meri meri
-- 😄 Kata ganti: meri
-- ⚡ Fakta menarik: meri
+- 👋 Hai, Gw ADOL SAPUTRA
+- 👀 Gw tertarik ADOL
+- 🌱 Saat ini Gw sedang belajar ADOL
+- 💞️ Gw ingin berkolaborasi dengan ADOL
+- 📫 Gw ter ADOL ADOL
+- 😄 Kata ganti: ADOL
+- ⚡ Fakta menarik: ADOL

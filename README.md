@@ -1,7 +1,8 @@
 - 👋 Hai, Gw ADOL SAPUTRA
-- 👀 Gw tertarik ADOL
-- 🌱 Saat ini Gw sedang belajar ADOL
-- 💞️ Gw ingin berkolaborasi dengan ADOL
+- 👀 Gw tertarik sama ADOL
+- 🌱 Saat ini Gw sedang belajar sama ADOL
+- 💞️ Gw ingin berkolaborasi sama ADOL
 - 📫 Gw ter ADOL ADOL
 - 😄 Kata ganti: ADOL
 - ⚡ Fakta menarik: ADOL
+OK!!! 👌

@@ -5,4 +5,4 @@
 - 📫 Gw ter ADOL ADOL
 - 😄 Kata ganti: ADOL
 - ⚡ Fakta menarik: ADOL
-OK!!! 👌
+- OK!!! 👌
